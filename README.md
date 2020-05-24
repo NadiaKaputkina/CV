@@ -1,1 +1,1 @@
-[Nadia Kaputkina CV](https://nadiakaputkina.github.io/rsschool-cv/)
+[Nadia Kaputkina CV](https://nadiakaputkina.github.io/cv/)
